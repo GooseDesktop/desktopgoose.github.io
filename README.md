@@ -1,2 +1,2 @@
-# desktopgoose.github.io
-Welcome to the Desktop Goose website. Go to the Desktop Goose blog to continue.
+# (_>
+# Welcome to the Desktop Goose website. Go to the Desktop Goose blog to continue.
